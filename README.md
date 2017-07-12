@@ -8,10 +8,10 @@ Youtube : https://www.youtube.com/channel/UC7cOssWHSyWgxnVZ3Q-2iIQ
 
 Discord : https://discord.gg/b6aB5wS
 
-![alt tag](https://www.hostingpics.net/viewer.php?id=334708bleu.jpg)
+![alt tag](https://img15.hostingpics.net/pics/334708bleu.jpg)
 
-![alt tag](https://www.hostingpics.net/viewer.php?id=522009noir.jpg)
+![alt tag](https://img15.hostingpics.net/pics/522009noir.jpg)
 
-![alt tag](https://www.hostingpics.net/viewer.php?id=882655rouge.jpg)
+![alt tag](https://img15.hostingpics.net/pics/882655rouge.jpg)
 
-![alt tag](https://www.hostingpics.net/viewer.php?id=912715bleu2.png)
+![alt tag](https://img15.hostingpics.net/pics/912715bleu2.png)
